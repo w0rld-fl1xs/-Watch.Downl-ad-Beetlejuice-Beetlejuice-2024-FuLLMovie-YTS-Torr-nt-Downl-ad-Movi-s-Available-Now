@@ -12,7 +12,7 @@
 
 
 
-[➤ ►🌍📺📱👉 W𝚊tch Beetlejuice Beetlejuice (2024) F𝚞ll Mo𝚟ie Downl𝚘ad](ttps://watch.m0vie.org/en/movie/917496/-beetlejuice-beetlejuice)
+[➤ ►🌍📺📱👉 W𝚊tch Beetlejuice Beetlejuice (2024) F𝚞ll Mo𝚟ie Downl𝚘ad](https://watch.m0vie.org/en/movie/917496/-beetlejuice-beetlejuice)
 
 
 
